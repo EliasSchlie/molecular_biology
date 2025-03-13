@@ -1,4 +1,4 @@
-While reading the first 3 chapers, I didn't know that I would publish my answers to the xgestions, so they are less well formated. I recommend lookingt at my answers from capter 4 on, but of course, you can also check the following 😁
+While reading the first three chapters, I hadn’t planned on publishing my answers, so they’re **less polished and not as well formatted**. I recommend starting with my answers from **Chapter 4 onward**, but of course, you’re welcome to check them all. 😁
 
 ## which statements are true? Explain why or why not.
 
